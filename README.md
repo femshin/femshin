@@ -1,6 +1,6 @@
 - hi im sebastian or niko
 - he/him or they/them is ok
-- inactive mostly.. you'll see me with my gf rarely
+- inactive mostly.. you'll see me rarely and probably only with my gf
 - i have a gf flirt with me and i will bitchslap u
 - (hehe hi charlotte here im the gf)
 - i have no idea how to use ponytown sos my gf is holding me hostage to play with her
